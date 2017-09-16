@@ -40,3 +40,6 @@ Check out [Tiger Shroff](https://www.instagram.com/tigerjackieshroff/?hl=en)
 Checkout [Babita Phogat](https://www.instagram.com/explore/tags/babitaphogat/)
 
 Why are you reading this line?
+
+
+क्या होगा यदि सभी कंप्यूटर भाषाओं, तकनीक अपडेट और युक्तियां और चालें एक मंच पर उपलब्ध हों? ठीक है, आपको कहीं और भीड़ की जरूरत नहीं है| हाँ, यह सुपर सच है [यहाँ](www.knowurcodes.com)।
