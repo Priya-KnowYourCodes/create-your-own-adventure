@@ -1241,3 +1241,5 @@ What is your [passion?](passion/passion.md)
 -
 
 searching for [good](tvf-play/watch.md) content.
+
+What if all the [computer languages](https://www.knowurcodes.com/codes-languages/), [tech updates](https://www.knowurcodes.com/blog/) and [tips and tricks](https://www.knowurcodes.com/category/tips-tricks/) are available at single platform? Well, you don't have to rush anywhere else. Yes, it's super true [here](https://www.knowurcodes.com/). 
